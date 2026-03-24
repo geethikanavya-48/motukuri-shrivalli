@@ -1,4 +1,4 @@
-# 👋 Hi there! I'm Shrivalli Motukuri  
+# 👋 Hi there! I'm Geethika Navya 
 
 🎓 **B.Tech in Computer Science and Engineering** | Seshadri Rao Gudlavalleru Engineering College  
 📍 Machilipatnam, India  
